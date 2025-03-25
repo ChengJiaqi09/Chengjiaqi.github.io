@@ -1,3 +1,1 @@
-- 校级一等奖学金, 2022.  
-
-- Outstanding Graduation Thesis, XXX University, 2023. 
+I have obtained the Miledi City Ranking Bage in Honor of Kings.
