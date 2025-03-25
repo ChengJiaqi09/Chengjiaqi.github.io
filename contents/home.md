@@ -8,7 +8,7 @@ I'm currently pursuing a Master's degree in XX at the Department of XX, XX Unive
 #### Education  
 **Hust University**, freshman
 
-####**Hobbies** <br>  
+#### Hobbies
 • tennis,badminton,computergame 
 
 
